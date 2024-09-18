@@ -1,2 +1,2 @@
 # bomoko-wp
-good thing scoming>>>
+good things coming>>>
